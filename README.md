@@ -1,1 +1,0 @@
-# snehak.github.io
